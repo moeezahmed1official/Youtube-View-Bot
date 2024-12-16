@@ -11,3 +11,4 @@ If you need help dm VASCO#8641
 
 
 https://media.discordapp.net/attachments/959050827958472734/975427428002455632/unknown.png
+https://www.tiktok.com/@moeezahmed.official
